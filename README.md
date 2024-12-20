@@ -1,1 +1,1 @@
-# This is my personal website!
+# FORMER Personal Website, no longer active (:
